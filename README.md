@@ -71,4 +71,4 @@
 
 ---
 
-⭐ *“Consistency beats intensity. I build every single day.”*  Would you like to make any changes or make it better Especially for My job profile how does it looks
+⭐ *“Consistency beats intensity”*  
