@@ -71,4 +71,6 @@
 
 ---
 
-⭐ *“Consistency beats intensity”*  
+<p align = "center">
+    <i>⭐ *“Consistency beats intensity”* </i>
+</p>
